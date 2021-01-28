@@ -1,5 +1,6 @@
 Julie Gankina
 +79096425718 (telegram, watsapp, mobile)
+julie.gankina@gmail.com
 
 Frontend Developer. 1 year or experience in markup, JavaScript and React technoloies.
 Skills: 
